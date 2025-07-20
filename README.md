@@ -1,16 +1,183 @@
-## Hi there 👋
+welcome to my readmel
+⊹₊ ˚‧︵‿₊୨୧₊‿︵‧ ˚ ₊⊹
+i love dreamcore
+𓊆 𓊇 𓊈 𓊉 𓉘 𓉝 𓈖
+nazushi / peko
+────୨ৎ──── 
+he / him - any pronouns except she / her
+. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. 
+aro / demi 
+°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
+owner of a regi [COTGV]
+✦•┈๑⋅⋯ ⋯⋅๑┈•✦
+oomfs are the people i most care for
+‎ـــــــــــــــــــﮩ٨ـ
 
-<!--
-**PekoPekoReaper/PekoPekoReaper** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+➽──────────────❥
+
+                             ＿＿
+　　　　　＞　🎩　フ
+　　　　　| 　_　 _ l
+　 　　　／` ミ＿xノ
+　　 　 /　　　🎀 |
+　　　 /　 ヽ　　 ﾉ
+　 　 │　　|　|　|
+　／￣|　　 |　|　|
+　| (￣ヽ＿_ヽ_)__)
+　＼二つ
+
+
+
+
+ ,　　　　　　　.　　　　　　    　　　　 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　    　      　　　　　        　　　　*　　　　　　　　　. 　　　　　　　　　　.　　　　　　　　　　　　　. 　　　　　　　　　　　　　　　　       　   　　　　 　　　　　　　　　　　　　　　　       　   　　　　　　　　　　　　　　　　       　    ✦ 　   　　　,
+I Love You
+I Love You
+I Love You
+I Love You
+I Love You
+I Love You
+I Love You
+I Love You
+I Love You
+I Love You
+I Love You
+I Love You
+I Love You
+I Love You
+I Love You
+I Love You
+ I Love You
+  I Love You
+   I Love You
+    I Love You
+     I Love You
+      I Love You
+       I Love You
+        I Love You
+         I Love You
+          I Love You
+           I Love You
+            I Love You
+             I Love You
+              I Love You
+               I Love You
+                I Love You
+                 I Love You
+                  I Love You
+                   I Love You
+                    I Love You
+                    I Love You
+                   I Love You
+                  I Love You
+                 I Love You
+                I Love You
+               I Love You
+              I Love You
+             I Love You
+            I Love You
+           I Love You
+          I Love You
+         I Love You
+        I Love You
+       I Love You
+      I Love You
+     I Love You
+    I Love You
+   I Love You
+  I Love You
+ I Love You
+I Love You
+I Love You
+ I Love You
+  I Love You
+   I Love You
+    I Love You
+     I Love You
+      I Love You
+       I Love You
+        I Love You
+         I Love You
+          I Love You
+           I Love You
+            I Love You
+             I Love You
+              I Love You
+               I Love You
+                I Love You
+                 I Love You
+                  I Love You
+                   I Love You
+                    I Love You
+                    I Love You
+                   I Love You
+                  I Love You
+                 I Love You
+                I Love You
+               I Love You
+              I Love You
+             I Love You
+            I Love You
+           I Love You
+          I Love You
+         I Love You
+        I Love You
+       I Love You
+      I Love You
+     I Love You
+    I Love You
+   I Love You
+  I Love You
+ I Love You
+I Love You
+I Love You
+I Love Yo u
+I Love Yo  u
+I Love Yo   u
+I Love Yo    u
+I Love Y o    u
+I Love Y  o    u
+I Love Y   o    u
+I Love Y    o    u
+I Love  Y    o    u
+I Love   Y    o    u
+I Love    Y    o    u
+I Love     Y    o    u
+I Love      Y    o    u
+I Love       Y    o    u
+I Love        Y    o    u
+I Love         Y    o    u
+I Lov e         Y    o    u
+I Lov  e         Y    o    u
+I Lov   e         Y    o    u
+I Lov    e         Y    o    u
+I Lo v    e         Y    o    u
+I Lo  v    e         Y    o    u
+I Lo   v    e         Y    o    u
+I Lo    v    e         Y    o    u
+I L o    v    e         Y    o    u
+I L  o    v    e         Y    o    u
+I L   o    v    e         Y    o    u
+I L    o    v    e         Y    o    u
+I  L    o    v    e         Y    o    u
+I   L    o    v    e         Y    o    u
+I    L    o    v    e         Y    o    u
+I     L    o    v    e         Y    o    u
+I      L    o    v    e         Y    o    u
+I       L    o    v    e         Y    o    u
+I        L    o    v    e         Y    o    u
+I         L    o    v    e         Y    o    u
+ I         L    o    v    e         Y    o    u
+  I         L    o    v    e         Y    o    u
+   I         L    o    v    e         Y    o    u
+    I         L    o    v    e         Y    o    u
+     I         L    o    v    e         Y    o   u
+      I         L    o    v    e         Y    o  u
+       I         L    o    v    e         Y    o u
+        I         L    o    v    e         Y    ou
+         I         L    o    v    e         Y   ou
+          I         L    o    v    e         Y  ou
+           I         L    o    v    e         Y ou🫧💗✨
